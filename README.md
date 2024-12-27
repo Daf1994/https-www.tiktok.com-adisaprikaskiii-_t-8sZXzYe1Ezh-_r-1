@@ -1,2 +1,2 @@
-# https-www.tiktok.com-adisaprikaskiii-_t-8sZXzYe1Ezh-_r-1
-1500
+https://www.tiktok.com/@stanelimagija?_t=8sZbfwuoAAS&_r=1
+2000
